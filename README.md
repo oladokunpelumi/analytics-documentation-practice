@@ -83,5 +83,5 @@ Tableau Public · LibreOffice (PDF rendering for validation)
 
 ---
 
-*Pelumi Oladokun · Lagos, Nigeria · [https://pelumioladokun.xyz](https://pelumioladokun.xyz) ·
+*Pelumi Oladokun · Lagos, Nigeria · [pelumi.xyz](https://pelumioladokun.xyz) ·
 [oladokunpelumi07@gmail.com](mailto:oladokunpelumi07@gmail.com)*
